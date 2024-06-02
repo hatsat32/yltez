@@ -1,0 +1,1 @@
+# Manuel Olarak Seçilen İmajlar
